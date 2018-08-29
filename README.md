@@ -12,7 +12,6 @@
 
 <font color=#00ffff size=72>color=#00ffff</font>
 
-<font color=gray size=72>color=gray</font>
 
 
 ![image](https://github.com/yay604882/TianTainYouYI/blob/master/ttyy.jpg)
