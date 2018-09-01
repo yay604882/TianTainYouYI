@@ -6,6 +6,6 @@
 ![image](https://github.com/yay604882/TianTainYouYI/blob/master/ttyy.jpg)
 
 
-[联系电话](+86-17076401334) : [+86-17076401334](+86-17076401334)
+[联系电话](+86-17076401634) : [+86-17076401334](+86-17076401634)
 
 [我们的邮箱](zjskn888@yandex.com) : [zjskn888@yandex.com](zjskn888@yandex.com)
